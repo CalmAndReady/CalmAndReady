@@ -1,3 +1,4 @@
+![:wjyhzz](https://count.getloli.com/get/@:wjyhzz)
 - 👋 Hi, I’m @wjyhzz
 - 👀 I’m interested in Java
 - 🌱 I’m currently learning ...
