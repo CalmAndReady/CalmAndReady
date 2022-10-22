@@ -1,4 +1,4 @@
-![:wjyhzz](https://count.getloli.com/get/@:wjyhzz)
+![:wjyhzz](https://count.getloli.com/get/@:wjyhzz?theme=rule34)
 - 👋 Hi, I’m @wjyhzz
 - 👀 I’m interested in Java
 - 🌱 I’m currently learning ...
