@@ -1,4 +1,7 @@
 ![:wjyhzz](https://count.getloli.com/get/@:wjyhzz?theme=rule34)
+[![Anurag's github stats](https://github-readme-stats.vercel.app/api?username=wjyhzz)](https://github.com/wjyhzz/github-readme-stats)
+
+
 - 👋 Hi, I’m @wjyhzz
 - 👀 I’m interested in Java
 - 🌱 I’m currently learning ...
